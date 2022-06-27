@@ -1,2 +1,2 @@
 hello world script
-"(Ôo)' script
+a confused smile script
